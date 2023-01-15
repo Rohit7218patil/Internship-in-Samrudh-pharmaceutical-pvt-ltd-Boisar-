@@ -1,2 +1,2 @@
-# Industrial-training-Report-2
-This is my second industrial training Report on Samrudh pharmaceutical pvt Ltd Boisar 
+Internship in samrudh pharmaceutical pvt Boisar
+This is my second Intership Report on Samrudh pharmaceutical pvt Ltd Boisar 
